@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jasmine Rose @jasminerosetv
+- 👋 Hi, I’m Jasmine Rose @jasmineoftherose
 - 👀 I’m interested in カフェ巡り and anime :3
 - 🌱 I’m currently learning Japanese and the piano, but also JavaScript, HTML, CSS, Python, etc.
 - 💞️ I’m looking for peps to help me along the way.
